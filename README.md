@@ -1,1 +1,1 @@
-Календарь алкоголика
+Alcoholic Calendar
